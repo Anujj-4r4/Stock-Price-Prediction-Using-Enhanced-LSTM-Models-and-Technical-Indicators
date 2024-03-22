@@ -5,7 +5,6 @@
 
 - 📫 How to reach me **satianuj123@gmail.com**
 
-- ⚡ Fun fact **I AM NOOB**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
